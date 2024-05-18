@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @nh4binaya.
+- 👋 Hi, I’m Binaya Thapa.
 
